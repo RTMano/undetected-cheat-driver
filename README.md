@@ -1,2 +1,4 @@
 # undetected-cheat-driver
-Free Cheat Driver Fully Undetected on EAC playing + 3Days still no ban --DO NOT USE IT TO MAKE A PAID CHEAT !!--
+Free UD cheat driver fully ud on EAC detected on BE playing + 3 days on eac still no ban enjoy playing !! 
+
+**Dm Me on discord if you need help !RTMano#1111 join my discord https://discord.gg/NT6WEPtqNe**
